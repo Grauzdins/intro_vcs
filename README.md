@@ -1,2 +1,2 @@
 # Esi sveicināts GitHub
-Tev labi izdodas! Tā turpināt!
+Tev labi izdodas! Tā turpināt! RB
